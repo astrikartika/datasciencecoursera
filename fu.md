@@ -1,3 +1,0 @@
-# first attemp nih
-
-woooiii
